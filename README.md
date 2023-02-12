@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @glassbat / @swore
 - 👀 I’m interested in ... Decentralized Finance.
-- 🌱 I’m currently learning ... UX and yield optimization 
+- 🌱 I’m currently learning ... UX and ... 
 - 💞️ I’m looking to collaborate on ... small projects 
 - 📫 How to reach me ... @swore Twitter @swore Deso
 
